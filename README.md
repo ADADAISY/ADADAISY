@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ADADAISY
-- 👀 I’m interested in the NFT space, being researching for a while and decided to go for it! 
+- 👀 I’m interested in the NFT space, researched for a while and decided to go for it, but still learning. 
 - 🌱 I’m currently learning how to mint and post! 
 - 💞️ I’m looking to collaborate on NFT's, exploring the space!
 - 📫 How to reach me @ https://www.instagram.com/adadaisyofficial/ 
